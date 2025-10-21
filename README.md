@@ -1,2 +1,0 @@
-# faizkool
-alok
